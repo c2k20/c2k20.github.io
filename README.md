@@ -1,1 +1,1 @@
-# Gallery | Canvas of Consciousnedd
+# Gallery | Canvas of Consciousness
